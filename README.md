@@ -1,2 +1,0 @@
-selamat datang
-
